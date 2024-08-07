@@ -2,9 +2,9 @@
 ## 这里是丨**帝王-专业收录视频电影电视剧美图论坛网站**丨可随时学习观摩<a href="https://dizhidaquan.com" target="_blank" class="modalbtn text-blue nmB4hteGKB 3Xyk5Zcf_s" id="loginbox"><font size="" color="#ff0000"><strong>→→→永久地址分享←←←</strong></font></a>
 dizhidaquan.com是我发现的一个很小众的适用于各个导航的使用的发布页模板，不良研究所、终极导航、帝王会所、小黄鸭导航、简约导航、传送门导航、秘密研究所、秘密入口、洪荒之力导航、地址大全、宅宅导航、笔盒视频、蝌蚪窝类似网站全部适用，大家可访问下载研究！
 <br>✨重要提醒✨收藏本页面，避免迷路！<br>
-❤️ 👉 【最新地址】 ：https://蓝色导航发布页最新.sirk.cc<br>
-❤️ 👉 【最新地址】 ：https://蓝色导航发布页官网.lsdhvip.com<br>
-❤️ 👉 【更多地址】 ：https://蓝色导航发布页.doufuru.vip<br>
+❤️ 👉 【最新地址】 ：https://帝王导航发布页最新.sirk.cc<br>
+❤️ 👉 【最新地址】 ：https://帝王导航发布页官网.lsdhvip.com<br>
+❤️ 👉 【更多地址】 ：https://帝王导航发布页.doufuru.vip<br>
 【永久地址】 ：https://wangjidizhi.com<br>
 ## 怎么快速找到丨**帝王-专业收录视频电影电视剧美图论坛网站**呢？
 :e-mail: __📧 找回地址邮箱:doufuru666#gmail.com 把#换成@（以上地址无法访问请发送任意内容获取最新地址）
